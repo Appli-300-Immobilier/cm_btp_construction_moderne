@@ -6,9 +6,9 @@
 - **Address/Contact:** 
   - Tout travaux de construction !!
   - 
-  - Page � Entreprise de construction
+  - Page é Entreprise de construction
   - 
-  - Rond Point Express biyem assi, Yaound�, Cameroon
+  - Rond Point Express biyem assi, Yaoundé, Cameroon
   - 
   - +237 6 56 56 79 63
   - 
